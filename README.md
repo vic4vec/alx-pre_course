@@ -1,3 +1,4 @@
 
 
-hard things are done
+hard things are done and we do them always
+
